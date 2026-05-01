@@ -1,5 +1,5 @@
 # Geo Studios
 We make dumb s*** on the internet. Enjoy all
-dumb s***ty creations ;)
+our dumb s***ty creations ;)
 
 © Geo Studios 2026, All rights reserved.
